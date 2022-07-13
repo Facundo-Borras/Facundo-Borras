@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-An attempt of programmer; but i can do a handstand.
-&#9658;
+An attempt of programmer #1F978; but i can do a handstand.
+
